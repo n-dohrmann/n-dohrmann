@@ -1,3 +1,3 @@
-nothing much here right now - check back later 
+University of Chicago ('23)
 
-
+B.S. in Molecular Engineering (minor in Computational Moelecular Engineering)
